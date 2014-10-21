@@ -1,4 +1,6 @@
 chubbz
 ======
 
-i got chubs for you
+i bought a domain and had to do something with it
+
+See: http://chub.bz
